@@ -15,4 +15,4 @@ _Please note that this application is specifically for Animal Crossing: New Hori
 
 ### Support or Contact
 
-Having trouble with ACNH Connect? Send an email to fpedro23@gmaio.com and we’ll help you sort it out.
+Having trouble with ACNH Connect? Send an email to fpedro23@gmail.com and we’ll help you sort it out.
